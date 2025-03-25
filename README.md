@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shaharia01
 
-- 🌱 I’m currently learning how to create a os of my own
+- 🌱 I’m currently learning how to create a OS of my own
 
 - 📫 How to reach me  📧Email: hamonto1may653@gmail.com
                       💬whatsapp: +8801618403431 
